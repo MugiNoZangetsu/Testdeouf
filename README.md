@@ -8,3 +8,5 @@
 - Tu penses qu'il peut m'aider ?
 - A faire quoi ?
 - Liquider mon voisin de formation !!!
+- Tu peux utiliser la manière douce ou forte à ta gise
+- J'en peux plus
